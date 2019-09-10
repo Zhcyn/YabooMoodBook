@@ -7,6 +7,8 @@ YB - Emotions aims to help you improve your emotional intelligence by providing 
 
 This information can help you identify your emotions more easily, determine their cause and be in a better position to manage them.
 
-Writing : Yetta Butler - YB Randall Butler - RB
+Writing :
+
+Yaboo Liang - Yaboo
 
 If you encounter problems during use, please contact BehruzPrinn1998@bk.ru
